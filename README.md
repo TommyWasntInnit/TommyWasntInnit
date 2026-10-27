@@ -1,4 +1,5 @@
 ⟡   read  me!
 
 you probably are here from ponytown,  hi ! ⸝⸝ i am *the* irl c!tommy  
-<img width="501" height="501" alt="71a523e24e17e2b09426f1c5db45480b (1)" src="https://github.com/user-attachments/assets/706fe8ba-bc8d-4ff6-93ae-2443dcdfc7ee" />
+<img width="1024" height="516" alt="bkkj5jl4xurmsasqe6fuinv4" src="https://github.com/user-attachments/assets/2e0ff0ae-99e3-478e-b15f-0ed0d69dbf5c" />
+
