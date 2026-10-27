@@ -11,3 +11,8 @@ you probably are here from ponytown,  hi ! ⸝⸝ i am *the* irl c!tommy   ⸺�
 
        ✩my dni ;
  
+૮ doubles dni , anti-wss dni , anti-radq/proship dni 𓏻
+*I will block you if you don't respect this*
+
+
+―    feel free to friend or cuddle me in ponytown
